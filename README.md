@@ -1,0 +1,1 @@
+# blue_lock_rival_trash
